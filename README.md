@@ -16,7 +16,7 @@ Diving into the world of GitHub and leveling up my web dev game. Always on the l
 
 If you're into design chat or want to see what I'm cooking up, hit me up:
 
-https://www.instagram.com/ivyonnie?igsh=MXVlNWRwZ2NyM2p1NQ%3D%3D&utm_source=qr
+[Instagram](https://www.instagram.com/ivyonnie?igsh=MXVlNWRwZ2NyM2p1NQ%3D%3D&utm_source=qr)
 
 ## Random bit
 
